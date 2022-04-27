@@ -1,18 +1,18 @@
 # Kacper Korszla
 
 ## Doświadczenie
-**Kraina Masażu**
+**Kraina Masażu**\
 od 2025
 
-**Własna działalność**
+**Własna działalność**\
 od 2025
 
-**Gabinet kosmetyczny YASUMI masaże i SPA Chełm**
+**Gabinet kosmetyczny YASUMI masaże i SPA Chełm**\
 2023
 
-**Dima, Salon&SPA**
+**Dima, Salon&SPA**\
 2021 - 2023
 
-**Medyki - chełm**
+**Medyki - chełm**\
 2020 - 2023
 
